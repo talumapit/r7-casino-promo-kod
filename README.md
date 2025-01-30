@@ -4,8 +4,7 @@
 
 ## Промокод R7 casino октрывает при регистрации 100 FS + 100% к первому депозиту в виде бонусов!
 
-## [R7 CASINO САЙТ](https://linkcasino.ru/r7_casino)
-
+## [R7 CASINO САЙТ](https://linkcasino.ru/r7_e100)
 
 
 
